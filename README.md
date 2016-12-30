@@ -1,2 +1,9 @@
 # hello-world
 Tutorial for a squire..but well, the pros have been there before...
+So sparse, so empty, so blank...
+The earth was without form, and there was darkness in the heavens,
+But the Spirit howered over the water.
+And the Lord said..let there be light...
+
+Will there be light?
+Turn it on.
